@@ -1,0 +1,2 @@
+Nama : AQSAL HERDI MARTA
+Nim : 18.12.0861
